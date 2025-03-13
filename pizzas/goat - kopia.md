@@ -1,11 +1,9 @@
-# the GOAT
+# the GOAT is nuts
 
-- sour cream
-- green small pepper
-- shallots
-- paprika powder
+- tomato sauce
 - chili flakes
 - goat cheese
-- arugula
-- cilantro
-- lime
+- honey
+- caramellized red onion
+- thyme
+- walnuts
